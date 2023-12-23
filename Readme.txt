@@ -1,1 +1,1 @@
-Thanks For using Islahpay
+Thanks For using Al Salam NeoBank
